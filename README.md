@@ -2,7 +2,8 @@
 - 👀 I’m interested in ...technology
 - 🌱 I’m currently learning ...codinf
 - 💞️ I’m looking to collaborate on ...github members
-- 📫 How to reach me ...call me 939579327
+- 📫 How to reach me ...call me 9390579327
+Or mail me on kpericharla2005 @gmail.com
 
 <!---
 Karthik/Karthik
